@@ -4,7 +4,7 @@
 - 💞️ Ve spolupráci s @livezonecz
 - 📫 Kontakt: otahal@livezone.cz
 - 💰 Nekupuji ani nevytvářím NFT :)
-- 🇺🇦 Podporuji Українu
+- 🇺🇦 Podporuji **Українu**
 
 <!---
 #Z7
