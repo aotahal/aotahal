@@ -3,7 +3,9 @@
 - 🌱 Jsem student
 - 💞️ Ve spolupráci s @livezonecz
 - 📫 Kontakt: otahal@livezone.cz
+- 💰 Nekupuji ani nevytvářím NFT :)
+- 🇺🇦 Podporuji Українu
 
 <!---
-Z7
+#Z7
 --->
