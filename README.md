@@ -4,8 +4,8 @@
 - 💞️ Ve spolupráci s @livezonecz
 - 📫 Kontakt: otahal@livezone.cz nebo kontakt@adamotahal.eu
 - 💰 Nekupuji ani nevytvářím NFT :)
-- 🇺🇦 Podporuji **Українu**
+- 😡 Nenávidím SnapChat
 
 <!---
-#Z7
+#10.12.22
 --->
